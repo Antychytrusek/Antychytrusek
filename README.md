@@ -2,7 +2,7 @@
 - 👀 I’m interested in journaling characters from games, manhwa, manga, anime - as well as professionally in graphics and printing
 - 🌱 I’m currently studying for my final exams and then to become a customs officer
 - 💞️ I’m looking to collaborate on gamers 
-- 📫 How to reach me - ig: _z.pamietnika.grafika_ or discord: .antichristus.
+- 📫 How to reach me - instagram: _z.pamietnika.grafika_ or discord: .antichristus.
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I've done 5k hours in genshin, I've only done about 1k hours in honkai star rial, I love writing and reading world lore. Oh and... I love pixel men from games
 
