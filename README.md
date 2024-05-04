@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on gamers 
 - 📫 How to reach me - ig: _z.pamietnika.grafika_ or discord: .antichristus.
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I've done 5k hours in genshin, I've only done about 1k hours in honkai star rial, I love writing and reading world lore
+- ⚡ Fun fact: I've done 5k hours in genshin, I've only done about 1k hours in honkai star rial, I love writing and reading world lore. Oh and... I love pixel men from games
 
 <!---
 Antychytrusek/Antychytrusek is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
